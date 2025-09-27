@@ -77,7 +77,8 @@ used.
 #### Power Report:
 
 
-![WhatsApp Image 2025-09-27 at 12 21 39_98f1d7ff](https://github.com/user-attachments/assets/64e7e3d7-5076-4115-a2f2-5a87b688931b)
+![WhatsApp Image 2025-09-27 at 21 45 02_944e4afc](https://github.com/user-attachments/assets/a2fae713-a9c1-4269-b4f4-37df8f71858a)
+
 
 
 #### Timing Report: 
